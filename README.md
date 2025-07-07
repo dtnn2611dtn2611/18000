@@ -23,4 +23,4 @@
 无论您是喜欢剧情丰富的精品有码，还是追求刺激的无码大片，这里都能满足您的需求。立即收藏本站，享受无广告、高清流畅的日本AV免费资源库，体验前所未有的看片乐趣！
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dtnn2611dtn2611/18000 ）</span>
